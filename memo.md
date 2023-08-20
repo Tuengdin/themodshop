@@ -1,4 +1,4 @@
-https://www.youtube.com/watch?v=AaiijESQH5o&list=PLrnPJCHvNZuDG6BWjUFVxeWyYlve_SVJO&index=4 10:57
+https://www.youtube.com/watch?v=AaiijESQH5o&list=PLrnPJCHvNZuDG6BWjUFVxeWyYlve_SVJO&index=4 44:59
 
 ## Timestamps:
 0:00 - Intro + prerequisites
